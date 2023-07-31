@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MiliPortanier
+- 👋 Hi, I’m Milo 👽
 - 🌱 I’m currently hiring: Fullstack developers.
 - 💞️ I’m looking to collaborate on Finding your next tech job!
 - 📫 How to reach me: Linkedin: https://www.linkedin.com/in/milagrosportanier/ or Maria.portanier@Taxdoo.com
